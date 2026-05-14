@@ -1,4 +1,4 @@
-#  
+#  advanced pull lucky blocks Script is the best pull lucky blocks Script, featuring teleport and god mode. Safe and powerful for all your needs.
 
 
 
